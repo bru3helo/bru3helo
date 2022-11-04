@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bru3helo
+- 👀 Sou interessada pela área de design 
+- 🌱 Acabei entrando na UTFPR para cursas Análise e Desenvolvimento de Sistemas
